@@ -1,0 +1,1 @@
+[Sesión 6 - 06-07-2026](https://drive.google.com/file/d/17DhCymRg0L9YVK-d8_GIGg6vEKC1SGNI/view?usp=sharing)
